@@ -1,1 +1,0 @@
-# priut-nadegdi.github.io
